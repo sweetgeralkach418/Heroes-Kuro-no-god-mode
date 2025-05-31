@@ -1,0 +1,1 @@
+# Heroes-Kuro-no-god-mode
